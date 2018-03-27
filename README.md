@@ -8,7 +8,8 @@ I believe in leading by helping others see more clearly what they already know, 
 I love to be surrounded by people who challenge me and I recognize that everyone is my superior at something. 
 I value open, authentic relationships. I promise to be kind, honest and empathetic with others, and hold a safe space for the hard, messy wonderful process of growing and flourishing as a full human being.
 
-## My answers to [first 1:1 questions] (http://larahogan.me/blog/first-one-on-one-questions/)
+## My answers to [first 1:1 questions](http://larahogan.me/blog/first-one-on-one-questions/ "What to ask in the first 1:1")
+ 
 
 What makes you grumpy?
 
