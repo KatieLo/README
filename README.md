@@ -2,13 +2,13 @@
 
 
 
-##My Leadership Philosophy 
+## My Leadership Philosophy 
 
 I believe in leading by helping others see more clearly what they already know, and finding the solutions and strengths that are already inside people. 
 I love to be surrounded by people who challenge me and I recognize that everyone is my superior at something. 
 I value open, authentic relationships. I promise to be kind, honest and empathetic with others, and hold a safe space for the hard, messy wonderful process of growing and flourishing as a full human being.
 
-##My answers to first 1:1 questions
+## My answers to first 1:1 questions
 
 - What makes you grumpy?
 
